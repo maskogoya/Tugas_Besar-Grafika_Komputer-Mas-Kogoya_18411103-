@@ -1,0 +1,1 @@
+# Tugas_Besar-Grafika_Komputer-Mas-Kogoya_18411103-
